@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. 100 gr de manteca
+1. 230 gr de azucar
+1. 400 ml de leche
